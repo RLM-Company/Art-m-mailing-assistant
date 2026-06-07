@@ -1,1 +1,0 @@
-# Art-m-mailing-assistant
